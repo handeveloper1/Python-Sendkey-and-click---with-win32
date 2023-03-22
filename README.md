@@ -9,3 +9,4 @@ dedikten sonra sorunsuz şekilde kullanabilirsiniz.
 
 
 Video:
+https://youtu.be/p2in17vtGQ0
